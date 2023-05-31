@@ -1,2 +1,2 @@
 Name | Email
-Seunbayo | codeclan@gmail.com
+Glorious Ohwojeheri | ohwojeheriglorious608@gmail.com
